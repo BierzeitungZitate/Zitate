@@ -1,4 +1,4 @@
-## A. Bachmann
+## A. Diehl
 Hoffmann: "Gruber gibt Aufgaben, von denen er selber nicht weiß, wie man sie macht!" Diehl: "Das ist doch spannend. Das ist, ähhh, ergebnisoffener Unterricht!"
 
 ## A. Bachmann
